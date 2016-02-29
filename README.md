@@ -1,1 +1,1 @@
-# Settlers of Shvszztan!
+# Settlers of Shvazztan!
